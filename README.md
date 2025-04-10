@@ -2,11 +2,10 @@
 
 
 
+![projeto-nike](https://github.com/user-attachments/assets/52e315d3-52ed-4de7-8a3d-dbc0c3ef0547)
 
 
 
-
-![projeto-nike](https://github.com/user-attachments/assets/6c519e6d-17ce-4261-86c5-4e2f1c64b462)
 
 
 
